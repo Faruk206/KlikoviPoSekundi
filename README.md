@@ -1,1 +1,1 @@
-Kliker koji sam napravio u skoli jbga
+Kliker koji sam napravio u skoli
